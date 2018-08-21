@@ -1,6 +1,6 @@
 # Proceso de creación user persona
 
-Del research realizado dsobre cantantes de ópera me enfonqué en sólo mujeres, sobre todo de la escena mexicana.
+Del research realizado sobre cantantes de ópera me enfonqué en sólo mujeres, sobre todo de la escena mexicana, sin perder de vista a las grandes figuras internacionales.
 
 Para ello observé algunos videos y realizcé una investigación a través de su redes sociales para averigüar un poco más sobre lo que normalmente no vemos en los escenarios.
 
